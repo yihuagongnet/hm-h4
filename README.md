@@ -13,6 +13,8 @@ https://rmhm.cfd
 
 **https://hanmanremen.com** （2023.8.16更新）
 
+https://rmhm.gay （2023.8.16更新）
+
 https://rmhm.sbs
 
 https://rmhm.top
